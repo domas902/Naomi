@@ -1,3 +1,3 @@
 # Naomi
 
-Potřebuje změny k vydání kódu
+Co mám tedy dělat
