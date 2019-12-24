@@ -1,3 +1,2 @@
 # Naomi
-
-Potřebuje změny k vydání kódu
+ I never help please 
